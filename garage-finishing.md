@@ -11,7 +11,7 @@
 
  **2. Primer/Paint time:** 
  
- - Apply one coat of primer and double coats on tape.
+ - Apply one coat of primer and double coats on the tape joining sheet rock.
  - Primer: (5 Gallon) - https://www.lowes.com/pd/Valspar-Pro-Interior-Pva-Water-Based-Wall-and-Ceiling-Primer-Actual-Net-Contents-640-fl-oz/1000380975
  - 6 inch rolls: 6 count - https://www.lowes.com/pd/Project-Source-6-Pack-Roller-Covers/3712994
  - Roller set: https://www.lowes.com/pd/Purdy-6-Piece-Paint-Applicator-Kit/1000402789
@@ -22,8 +22,8 @@
  - Wall paints (1/2 Gallon/wall): https://www.lowes.com/pd/Valspar-Ultra-White-Base-A-Gloss-Enamel-Tintable-Interior-Paint-Actual-Net-Contents-128-fl-oz/1000380265
  - Plastic cover for entire floor: https://www.lowes.com/pd/Trimaco-Stay-Put-Drop-Cloths-1-Pack-Plastic-9-ft-x-12-ft-Drop-Cloth/3121989
  - Mixing sticks: https://www.lowes.com/pd/SHLA-5-Gal-Paint-Stick-3-Pack/5001836465
- - Big ladder
- - Waste cloths
+ - Big ladder: https://www.lowes.com/pd/Werner-360-6-ft-Aluminum-Type-1-250-lbs-Capacity-Step-Ladder/3034711
+ - Waste cloths: https://www.walmart.com/ip/18PK-WASHCLOTH-WHITE/167085950
 
  **3. Flooring time:**
  
